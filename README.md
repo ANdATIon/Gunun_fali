@@ -1,1 +1,0 @@
-# Gunun_fali
